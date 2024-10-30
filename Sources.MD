@@ -1,0 +1,9 @@
+Sources:
+https://unsplash.com/photos/a-television-sitting-on-top-of-a-wooden-table-p6v-BExkaWg
+https://unsplash.com/photos/silver-disco-ball-VawUHVxUvJ4
+https://unsplash.com/photos/a-spiral-of-red-yellow-and-black-colors--uu4817ilfc
+https://unsplash.com/photos/purple-vinyl-record-on-black-and-white-table-QzpgqElvSiA
+https://unsplash.com/photos/brown-and-black-cassette-radio-51H2LuKFHsI
+https://unsplash.com/photos/brown-and-black-cassette-radio-51H2LuKFHsI
+https://brovon.com/products/protect-baggy-jeans-black
+https://jalopnik.com/these-are-the-cars-you-think-are-the-most-80s-1846702154
